@@ -1,2 +1,2 @@
 # stelles-brainrot
-hi
+me and who?
